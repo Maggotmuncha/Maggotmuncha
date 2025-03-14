@@ -1,4 +1,12 @@
-## Hi there 👋
+## Hey gang
+it's me the maggoty mmuncha cruncha
+I dont have any socials but uhm, I have like two accs:
+Roblox (😭): @applesweetsweet (dont judge yall)
+YT: @Maggotmuncha (Again, dont judge, i just post randomly)
+
+and uh yeah.
+
+Strawpage btw: https://maggotmuncha.straw.page
 
 <!--
 **Maggotmuncha/Maggotmuncha** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
