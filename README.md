@@ -1,5 +1,7 @@
 ## Hey gang
-it's me the maggoty mmuncha cruncha
+it's me the maggoty muncha cruncha
+
+
 I dont have any socials but uhm, I have like two accs:
 Roblox (😭): @applesweetsweet (dont judge yall)
 YT: @Maggotmuncha (Again, dont judge, i just post randomly)
