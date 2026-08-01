@@ -1,12 +1,7 @@
-## Hey gang
-it's me the maggoty muncha cruncha
+## Maggot Muncha the Maggot Muncha Cruncha!
 
+<img width="778" height="840" alt="image" src="https://github.com/user-attachments/assets/c3fdc14d-c31d-4813-babe-e43a01416302" />
 
-I dont have any socials
-
-and uh yeah.
-
-Strawpage btw: https://maggotmuncha.straw.page
 
 <!--
 **Maggotmuncha/Maggotmuncha** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
