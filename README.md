@@ -1,6 +1,6 @@
 ## Maggot Muncha the Maggot Muncha Cruncha!
 
-<img width="778" height="840" alt="image" src="https://github.com/user-attachments/assets/c3fdc14d-c31d-4813-babe-e43a01416302" />
+<img width="389" height="420" alt="image" src="https://github.com/user-attachments/assets/c3fdc14d-c31d-4813-babe-e43a01416302" />
 
 
 <!--
