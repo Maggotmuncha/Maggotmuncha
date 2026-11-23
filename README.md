@@ -13,8 +13,7 @@
 <p>
  ᴘᴇᴇᴘ ᴛʜᴇ ꜱᴛʀᴀᴡ ꜰᴏʀ ɢᴇɴᴇʀᴀʟ ᴅɴɪ ᴀɴᴅ ɪɴᴛʀᴇꜱᴛꜱ!!
 </p>
-
-<img width="500" height="17" alt="IMG_6169" src="https://github.com/user-attachments/assets/bf4fd007-9622-4029-8deb-e7dbc38a1989" />
+![Uploading 1000009033.gif…]()
 
 
 <div>
