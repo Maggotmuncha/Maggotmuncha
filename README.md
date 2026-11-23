@@ -3,6 +3,9 @@
 
 <img src="https://files.catbox.moe/96c8bb.png" width=150 height=370 align="right"></img>
 
+<img width="500" height="17" alt="IMG_6169" src="https://github.com/user-attachments/assets/c375d460-557c-4649-8841-45cda99f6d8f" />
+
+
 <p>
   ꜰʀᴀʏ — ʀᴀᴘʜ 
 </p>
@@ -10,6 +13,8 @@
 <p>
  ᴘᴇᴇᴘ ᴛʜᴇ ꜱᴛʀᴀᴡ ꜰᴏʀ ɢᴇɴᴇʀᴀʟ ᴅɴɪ ᴀɴᴅ ɪɴᴛʀᴇꜱᴛꜱ!!
 </p>
+
+<img width="500" height="17" alt="IMG_6169" src="https://github.com/user-attachments/assets/bf4fd007-9622-4029-8deb-e7dbc38a1989" />
 
 
 <div>
