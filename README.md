@@ -1,19 +1,21 @@
 ## Maggot Muncha the Maggot Muncha Cruncha!
 
-<img width="194" height="210" alt="image" src="https://github.com/user-attachments/assets/c3fdc14d-c31d-4813-babe-e43a01416302" />
+<img src="https://files.catbox.moe/96c8bb.png" width=150 height=370 align="right"></img>
+
+<p>
+  ꜰʀᴀʏ — ʀᴀᴘʜ 
+</p>
+
+<p>
+ ᴘᴇᴇᴘ ᴛʜᴇ ꜱᴛʀᴀᴡ ꜰᴏʀ ɢᴇɴᴇʀᴀʟ ᴅɴɪ ᴀɴᴅ ɪɴᴛʀᴇꜱᴛꜱ!!
+</p>
+
+<img src="(https://files.catbox.moe/v4va23.gif)"></img>
+<img src="(https://files.catbox.moe/rxehid.gif)"></img>
+
+<p> 
+  yea that’s it man
+</p>
 
 
-<!--
-**Maggotmuncha/Maggotmuncha** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
